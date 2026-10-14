@@ -1,0 +1,1 @@
+Nyuszika sétált az erdő szélén, majd leesett.
